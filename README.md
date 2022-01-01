@@ -1,0 +1,2 @@
+# thai
+Chào mọi người
